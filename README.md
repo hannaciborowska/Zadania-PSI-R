@@ -1,1 +1,1 @@
-Moje rozwiązania zadań z zajęć 1
+Moje rozwiązania zadań z zajęć 
